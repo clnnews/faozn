@@ -1,7 +1,7 @@
 # 屁屁草草影院CCYY页
 屁屁草草影院CCYY页一张地
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=9GtYscxq2JHtl4wpmtdwIAAxXmBlUXzKrLhK6E7cDRO&wd
+# <a href="https://github.com/clnnews/qxgge/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 屁屁草草影院CCYY页　　在我生长的12年中，舅父和舅妈对我的关怀我从来铭刻于心。生存上她们问长问短，进修上她们点点滴滴都扶助我，让我功夫享用快乐。
 		28、想你那是必须的，念你那是必然的，爱你那是必做的，时时刻刻祝福你那是必定的：愿我最心爱的你天天都有开心相伴，时时都有幸福相随。
